@@ -1,1 +1,0 @@
-# Easy-Bot-For-Discord
